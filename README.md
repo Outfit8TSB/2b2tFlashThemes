@@ -1,4 +1,4 @@
-# 2b2tPE
+# 2B2T FT
 Welcome To 2Builders2Tools FlashThemes Bedrock Edition.
 This Server is powered by PlazmaMC.
 Crossplay Better for Anarchio. join with ft.ign.gg or Flashthemes.AnarchyPE.com
