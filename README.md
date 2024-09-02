@@ -9,7 +9,7 @@ or simply use ftbe.2b2t.be
 suginoko1(My 1st Japanese MC Friend)
 abazinia(My MC Friend)
 Oxygen9646(My Japanese MC Friend)
-.LjCat1314(My Japanese MC Friend)
+.LjCat1314(My Korean MC Friend)
 nekodayo8442(My Japanese MC Friend)
 MasterLuke
 Ginjeet
